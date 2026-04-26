@@ -1,6 +1,6 @@
 # Statement On AI
 
-**Destruction is caused not by the tool, nor the hand that holds it, but by the brain that forgets how the tool came to be** - Ronan Hughes
+**"Destruction is caused not by the tool, nor the hand that holds it, but by the brain that forgets how the tool came to be"** - Ronan Hughes
 
 AI is a powerful tool. I can say with confidence that if I utilized AI to write, edit, or even just proofread this document, it would be would have a meaurably positive impact on its readability and impact. It would flow better, be more concise, use better vocab, have a more professional tone, and take half the time and effort to write. In an abundance of tasks, there are elements where the usage of AI could greatly improve the quality of the final product, while decreasing the time and effort neccesary. Clearly then, AI is a tool everyone should use. But I write this statement today, with my informal tone, my overuse of commas, allowing all my thoughts and ideas to spill out from my brain onto this page. I use only my brain, a dictionary and thesaraus, and the letter keys on my keyboard. I apologize to the reader for having to deal with my messy and unrefined musings, if you have read this far. Perhaps some day someone will be kind enough to proofread and edit this for me. But today, it remains purely mine, purely human. I do have at my disposal, a lexigraphic collection of more knowledge than I may ever know, capable of providing consice ideas and input at a moments notice. But I will not use it, please allow my to explain why.
 
