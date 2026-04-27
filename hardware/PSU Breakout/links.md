@@ -11,3 +11,8 @@ $10.97
 - Takes 24 Pin
 - Integrated Fuses
 - 
+
+
+## GeeekPI Breakout Board
+### Link
+[Link](https://www.amazon.com/dp/B08MC389FQ/ref=sspa_dk_hqp_detail_aax_0?psc=1&sp_csd=d2lkZ2V0TmFtZT1zcF9ocXBfc2hhcmVk) 
